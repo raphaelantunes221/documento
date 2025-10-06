@@ -29,3 +29,4 @@ Vencedor do prêmio Faustino 2018
 
 habilidades
 sei baixar jogos como minecraft roblox e transformers war for cybertron
+e quero estudar a cultura do japão e mora no japão aprender mecher na tecnologia lá no japão pois a tecnologia é muito mais avanção do que os outros pais
