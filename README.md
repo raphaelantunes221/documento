@@ -36,7 +36,7 @@ Além disso, o Japão tem investido em tecnologias de transporte sustentável, c
 Em resumo, o Japão é um país que tem se destacado na inovação e na aplicação de tecnologias em diversos setores. O investimento em pesquisa e desenvolvimento, aliado à cultura de excelência e compromisso com a qualidade, tem feito com que empresas japonesas sejam referência no mundo todo.
 
 As tecnologias como a robótica, a inteligência artificial, a energia renovável e o transporte sustentável são exemplos de como o Japão vem transformando sua sociedade e economia por meio da tecnologia. O país segue no caminho da inovação e da tecnologia, buscando sempre novas soluções para os desafios do mundo moderno e inspirando outros países a seguir seu exemplo.
-![maglev](https://github.com/user-attachments/assets/f28509e7-4470-48a1-a82d-ce534d1dd55b)
+![maglev](https://github.com/user-attachments/assets/f28509e7-4470-48a1-a82d-ce534d1dd55b)   estudar a parte historico
 O Museu Histórico da Imigração Japonesa no Brasil possui o maior e mais completo acervo relacionado à história da imigração japonesa no Brasil.
 
 
@@ -52,3 +52,4 @@ unnamed-3
 unnamed-4
 9ß-andar-museu-imigracao
 Passadas quatro décadas, o Museu continua cumprindo sua missão e se constitui num local obrigatório de reverência à memória dos antepassados. Em 2018, suas instalações expositivas passaram por amplas reformas e modernização e em 2019 novos espaços foram adicionados ao Museu, tornando-o ainda mais um ponto obrigatório de visita.
+[https://bunkyo.org.br/wp-content/webp-express/webp-images/uploads/2020/10/principe.jpg.webp](https://bunkyo.org.br/wp-content/webp-express/webp-images/uploads/2020/10/principe.jpg.webp)
