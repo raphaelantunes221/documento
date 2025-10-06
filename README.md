@@ -53,4 +53,7 @@ unnamed-4
 9ß-andar-museu-imigracao
 Passadas quatro décadas, o Museu continua cumprindo sua missão e se constitui num local obrigatório de reverência à memória dos antepassados. Em 2018, suas instalações expositivas passaram por amplas reformas e modernização e em 2019 novos espaços foram adicionados ao Museu, tornando-o ainda mais um ponto obrigatório de visita.
 <img width="1024" height="683" alt="image" src="https://github.com/user-attachments/assets/29b24768-b075-4b53-a601-24982656f9d3" />
-
+ <img width="1024" height="683" alt="image" src="https://github.com/user-attachments/assets/c02e6388-f965-476d-bdf2-1a5fbb2df327" />
+<img width="1024" height="683" alt="image" src="https://github.com/user-attachments/assets/bdf80dd2-8ac5-4154-a8a5-e1334742b814" />
+<img width="1024" height="683" alt="image" src="https://github.com/user-attachments/assets/4f6924ea-9334-47c7-8e59-f36a31d4fd50" />
+Passadas quatro décadas, o Museu continua cumprindo sua missão e se constitui num local obrigatório de reverência à memória dos antepassados. Em 2018, suas instalações expositivas passaram por amplas reformas e modernização e em 2019 novos espaços foram adicionados ao Museu, tornando-o ainda mais um ponto obrigatório de visita.
