@@ -52,4 +52,4 @@ unnamed-3
 unnamed-4
 9ß-andar-museu-imigracao
 Passadas quatro décadas, o Museu continua cumprindo sua missão e se constitui num local obrigatório de reverência à memória dos antepassados. Em 2018, suas instalações expositivas passaram por amplas reformas e modernização e em 2019 novos espaços foram adicionados ao Museu, tornando-o ainda mais um ponto obrigatório de visita.
-(https://bunkyo.org.br/wp-content/webp-express/webp-images/uploads/2020/10/principe.jpg.webp)
+![Uploading image.png…]()
