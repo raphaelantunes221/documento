@@ -1,18 +1,14 @@
 # documento
-Trabalho em equipe;
-Liderança;
-Pensamento criativo;
-Resolução de problemas;
-Programação.
+Trabalho em na panificadora no mercado do meu avô;
+abasteço a geladeiras do mercado recolho as sextas do caixa 
+empacoto no caixa levo as compras do clientes que pressição de ajuda
+e ganho gorjeta de 10R$ a 2$ de gojeta
 Português - Nativo
 gosto de jogar minecraft e 
 jogar roblox
 Vencedor do prêmio Faustino 2018 
           na categoria Cloud Services.
           
-
-
-
 habilidades
 idiomas
 premiações
