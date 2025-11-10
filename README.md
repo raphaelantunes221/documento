@@ -2,13 +2,10 @@
 Trabalho em na panificadora no mercado do meu avô;
 abasteço a geladeiras do mercado recolho as sextas do caixa 
 empacoto no caixa levo as compras do clientes que pressição de ajuda
-e ganho gorjeta de 10R$ a 2$ de gojeta
+e ganho gorjeta de 10R$ a 2R$ de gojeta
 Português - Nativo
 gosto de jogar minecraft e 
 jogar roblox
-Vencedor do prêmio Faustino 2018 
-          na categoria Cloud Services.
-habilidades
 sei baixar jogos como minecraft roblox e transformers war for cybertron
 e quero estudar a cultura do japão e mora no japão aprender mecher na tecnologia lá no japão pois a tecnologia é muito mais avanção do que os outros pais como esse transporteO transporte e a mobilidade são outras áreas em que o Japão tem se destacado. O país é conhecido por seu sistema de transporte público de alta qualidade, que inclui trens-bala, metrôs e ônibus.
 
